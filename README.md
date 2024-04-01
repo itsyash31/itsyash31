@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning NOP
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me --
-- Insta : @itsyou_me_69
+- Insta : @itsyash_76
 
 <!---
 itsyash31/itsyash31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
